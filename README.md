@@ -1,0 +1,1 @@
+# halyk_charity
